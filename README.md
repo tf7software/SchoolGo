@@ -1,3 +1,0 @@
-# SchoolGo!
-
-Unblocked Google!
